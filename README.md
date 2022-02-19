@@ -10,7 +10,7 @@
 >**Javascript**
 
 
-## Contract
+## Contact
 [My Discord Link](https://discord.gg/bfZ59R8WXM)
 
 Disocrd : Pat6900 #4095
